@@ -1,7 +1,7 @@
 ---
 title: Where to buy a gaming PC in Panama?
 layout: post
-image:
+image: https://i.imgur.com/Vs1ZDz0.jpg
 permalink: /gaming-pc-in-panama
 ---
 
