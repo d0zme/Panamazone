@@ -1,7 +1,7 @@
 ---
 title: Amazon Prime in Panama
 layout: post
-image: 
+image: https://i.imgur.com/gytxU97.jpg
 permalink: /Amazon-Prime-in-Panama/
 ---
 
