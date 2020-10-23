@@ -21,10 +21,6 @@ I have found a rather hard, but in principle probably accurate experience elsewh
 
 "While many institutions here are inefficient, the banks take the prize by a large margin.  I have several horror stories I could relate but for fear of an injuria y calumnia suit. ....  I have found the bank employees to be unfailingly polite (and the police, too, for that matter) but to be utterly feckless when it comes to results. If I can ever get out of a situation with a bank which has consumed my time and energy for over a year, has cost me thousands of dollars, and has left me debilitated emotionally and physically, I intend to live in Panama without the "benefits" of Panamanian banking."
 
-**The horror story of a bank client,**
-
-"While many institutions here are inefficient, the banks take the prize by a large margin.  I have several horror stories I could relate but for fear of an injuria y calumnia suit.  ....  I have found the bank employees to be unfailingly polite (and the police, too, for that matter) but to be utterly feckless when it comes to results. If I can ever get out of a situation with a bank which has consumed my time and energy for over a year, has cost me thousands of dollars, and has left me debilitated emotionally and physically, I intend to live in Panama without the "benefits" of Panamanian banking."
-
 Unfortunately, none of the banks seems to be optimal, each has advantages and disadvantages. In addition, the location of the branches and the ATMs will be taken into consideration when making the selection. Withdrawing money from ATMs is only free of charge if it is done at your own bank.
 
 The fortunate part about having a bank account in Panama would be the **ease of paying bills without having to stand in line at a grocery store**. And with Nequi being hooked up with Paypal, receiving money abroad is now quite easy (if you have the right bank account).
