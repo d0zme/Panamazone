@@ -4,6 +4,8 @@ layout: post
 image: https://i.imgur.com/mpsZUEv.jpg
 ---
 
+![](https://i.imgur.com/mpsZUEv.jpg)
+
 A ship called Satoshi, with 777 cabins is preparing to undertake a journey from Greece to the Gulf of Panama. There, it will have the mission of making every bitcoiner's dream come true: to develop a lifestyle as a digital nomad, while its entire economy revolves around Bitcoin.
 
 A group of naval engineering entrepreneurs have discovered a new niche to operate in, now that the recession caused by the pandemic is hitting the tourism and cruise industry hard. "From adversity comes opportunity," they say in a press release issued today, in which they announce their new project. It consists of developing a whole floating technological center, where it will be possible to live in a sustainable way, with Bitcoin as the main character.
